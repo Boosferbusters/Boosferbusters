@@ -30,6 +30,10 @@ ________________________________________________________________________________
 <img width="1036" height="541" alt="image" src="https://github.com/user-attachments/assets/982b4ad8-6bb6-45d1-836a-9aeff1de0b1f" />
 
 
+
+
+<img width="313" height="317" alt="image" src="https://github.com/user-attachments/assets/f29dfc1c-07dc-40e2-bbf0-3b621ce82e0c" />↖SULLY WYM COMPLICATED??
+
                                       
                                          lalalalala lelelelele lololololo
 
