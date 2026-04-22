@@ -14,7 +14,7 @@ ________________________________________________________________________________
 
 . ℹ️ INFO . Hi! My names Milk, you can also call me boo if you want, tho most people call me as Milk. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!! I am mostly afk, so sorry if i ignore you]:
 
-. ❤️ LIKES . My Bf - My family - BESTfriends - My friends pizzapunch discord server - My yumes
+. ❤️ LIKES . My family - BESTfriends - My friends pizzapunch discord server - My yumes
 
 . ❤️‍🔥 YUMES[hypersharing] . Angeldust - Elliot - Sprout
 
