@@ -8,6 +8,7 @@ ________________________________________________________________________________
                                                     Welcome my peasants...
                                                   Your local Boosfer lover,
                                                         ꒦︶Milk!꒷꒦
+                                                i put so many pics here gulp..
 
 . ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos
 
