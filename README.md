@@ -44,7 +44,16 @@ ________________________________________________________________________________
 <img width="375" height="275" alt="image" src="https://github.com/user-attachments/assets/17f6a21e-3859-4cd7-aeba-d1297e6ba37b" /> <img width="395" height="294" alt="image" src="https://github.com/user-attachments/assets/c3a71024-dc16-413e-8519-969e2562e6dc" />
 
 
-  ______________________________________________________________________________________________________________________________________________
+                                              My previous names so far  
+                                              
+Sp0iledM1lk
+
+Boosfyboosfer
+
+BoosferBusters
+
+
+______________________________________________________________________________________________________________________________________________
 
   Psst hey... Join my friends pizzapunch discord serv, check my 2nd social.. ok? ok bye.
 
