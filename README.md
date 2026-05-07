@@ -12,7 +12,7 @@ ________________________________________________________________________________
                                                 
 . ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos
 
-. ℹ️ INFO . Hi! My names Milk, you can also call me boo if you want, tho most people call me as Milk. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!! I am mostly afk, so sorry if i ignore you]:
+. ℹ️ INFO . Hi! My names Milk, you can also call me boo or bowzie if you want. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!! I am mostly afk, so sorry if i ignore you]:
 
 . ❤️ LIKES . My family - BESTfriends - My friends pizzapunch discord server - My yumes
 
@@ -27,7 +27,7 @@ ________________________________________________________________________________
 . 🏳️‍🌈 SEXUALITY . Pansexual - Fictosexual - Lesbiannnn
 
 . 📌 WHERE YOU CAN FIND ME . below right bottom main entrance of bakery near tree leaves <img width="739" height="452" alt="image" src="https://github.com/user-attachments/assets/6e3d1936-649d-4623-b173-8cdeba9db72e" />
-if im with my friends, ight side of baketry near lakes aka tadc and md fandom
+if im with my friends, right side of baketry near lakes aka tadc and md fandom
 
 . 👨‍👩‍👧‍👦 FAMILY[not irl] . @StormikStormovich - @everlastingsunshine - @toxitivitives[not sure if i spelled it right] - i have 2 more but they dont got github, js check @everlastingsunshine for the other 2 ok?
 
@@ -47,7 +47,7 @@ ________________________________________________________________________________
                                               
 Sp0iledM1lk
 
-Boosfyboosferrrrr
+Boosfyboosferrrr
 
 BoosferBusters
 
