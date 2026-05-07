@@ -27,7 +27,7 @@ ________________________________________________________________________________
 . 🏳️‍🌈 SEXUALITY . Pansexual - Fictosexual - Lesbiannnn
 
 . 📌 WHERE YOU CAN FIND ME . below right bottom main entrance of bakery near tree leaves <img width="739" height="452" alt="image" src="https://github.com/user-attachments/assets/6e3d1936-649d-4623-b173-8cdeba9db72e" />
-if im with my friends, right side of baketry near lakes aka tadc and md fandom
+if not there, either offline or in other spots with diff skins
 
 . 👨‍👩‍👧‍👦 FAMILY[not irl] . @StormikStormovich - @everlastingsunshine - @toxitivitives[not sure if i spelled it right] - i have 2 more but they dont got github, js check @everlastingsunshine for the other 2 ok?
 
