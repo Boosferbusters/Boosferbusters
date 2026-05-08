@@ -5,12 +5,12 @@ art credits - Miffyforwill [ ON TWITTER :
 _____________________________________________________________________________________________________________________________________________ 
                                                               DISCLAMIER ; This account is ONLY for pony town
                                                    
-                                                    Welcome my peasants...
-                                                  Your local Boosfer lover,
+                                                   Welcome my peasants...
+                                                Your local Boosfer lover/p,
                                                         ꒦︶Milk!꒷꒦
-
+                                Pansexual - Fictosexual - Hypersexual - ED - angeldust fictkin
                                                 
-. ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos
+. ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos - boundary breakers - racists - ableist
 
 . ℹ️ INFO . Hi! My names Milk, you can also call me boo or bowzie if you want. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!! I am mostly afk, so sorry if i ignore you]:
 
@@ -23,8 +23,6 @@ ________________________________________________________________________________
 . 🕒 TIME . GST
 
 . 🏳️ COUNTRY . Philippines, but i live a different country..
-
-. 🏳️‍🌈 SEXUALITY . Pansexual - Fictosexual - Lesbiannnn
 
 . 📌 WHERE YOU CAN FIND ME . below right bottom main entrance of bakery near tree leaves <img width="739" height="452" alt="image" src="https://github.com/user-attachments/assets/6e3d1936-649d-4623-b173-8cdeba9db72e" />
 if not there, either offline or in other spots with diff skins
