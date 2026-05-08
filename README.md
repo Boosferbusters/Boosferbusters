@@ -12,7 +12,9 @@ ________________________________________________________________________________
                                                 
 . ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos - boundary breakers - racists - ableist
 
-. ℹ️ INFO . Hi! My names Milk, you can also call me boo or bowzie if you want. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!! I am mostly afk, so sorry if i ignore you]:
+. ℹ️ INFO . Hi! My names Milk, you can also call me boo or bowzie if you want. I allow sharing my yumes, i would LOVE to see people who also yumeship my yumes lelll. I am in multifandoms too! I love when people C+H me, so i encourage you to do so!!
+
+. ℹ️ BYI . I am mostly afk, so sorry if i ignore you]: I do not accept random friend requests, i must atleast talk to you or know you first. You may see me disappearing alot, its just my internet acting up whenever i switch tabs:/ I am a semi not verbal person, i may interact dryly at first; but when i get more comfortable, well i go to my actual self. I dont use tonetag much, just please; tell me if you're uncomfortable. I will shut the fuck up.
 
 . ❤️ LIKES . My family - BESTfriends - My friends pizzapunch discord server - My yumes
 
@@ -25,7 +27,7 @@ ________________________________________________________________________________
 . 📌 WHERE YOU CAN FIND ME . below right bottom main entrance of bakery near tree leaves <img width="739" height="452" alt="image" src="https://github.com/user-attachments/assets/6e3d1936-649d-4623-b173-8cdeba9db72e" />
 if not there, either offline or in other spots with diff skins
 
-. 👨‍👩‍👧‍👦 FAMILY[not irl] . [![StormikStormovich](https://shields.io)](https://github.com) - @everlastingsunshine - @toxitivitives[not sure if i spelled it right] - i have 2 more but they dont got github, js check @everlastingsunshine for the other 2 ok?
+. 👨‍👩‍👧‍👦 FAMILY[not irl] . @StormikStormovich - @everlastingsunshine - @toxitivities - i have 2 more but they dont got github, js check @everlastingsunshine for the other 2 ok?
 
 <img width="1036" height="541" alt="image" src="https://github.com/user-attachments/assets/982b4ad8-6bb6-45d1-836a-9aeff1de0b1f" />
 
