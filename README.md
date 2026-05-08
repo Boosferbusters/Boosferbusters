@@ -25,7 +25,7 @@ ________________________________________________________________________________
 . 📌 WHERE YOU CAN FIND ME . below right bottom main entrance of bakery near tree leaves <img width="739" height="452" alt="image" src="https://github.com/user-attachments/assets/6e3d1936-649d-4623-b173-8cdeba9db72e" />
 if not there, either offline or in other spots with diff skins
 
-. 👨‍👩‍👧‍👦 FAMILY[not irl] . @StormikStormovich - @everlastingsunshine - @toxitivitives[not sure if i spelled it right] - i have 2 more but they dont got github, js check @everlastingsunshine for the other 2 ok?
+. 👨‍👩‍👧‍👦 FAMILY[not irl] . [![StormikStormovich](https://shields.io)](https://github.com) - @everlastingsunshine - @toxitivitives[not sure if i spelled it right] - i have 2 more but they dont got github, js check @everlastingsunshine for the other 2 ok?
 
 <img width="1036" height="541" alt="image" src="https://github.com/user-attachments/assets/982b4ad8-6bb6-45d1-836a-9aeff1de0b1f" />
 
