@@ -20,8 +20,6 @@ ________________________________________________________________________________
 
 . 🎂 BIRTHDAY . janurary 8 20[--]
 
-. 🕒 TIME . GST
-
 . 🏳️ COUNTRY . Philippines, but i live a different country..
 
 . 📌 WHERE YOU CAN FIND ME . below right bottom main entrance of bakery near tree leaves <img width="739" height="452" alt="image" src="https://github.com/user-attachments/assets/6e3d1936-649d-4623-b173-8cdeba9db72e" />
