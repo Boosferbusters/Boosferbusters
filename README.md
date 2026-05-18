@@ -6,9 +6,9 @@ ________________________________________________________________________________
                                                               DISCLAMIER ; This account is ONLY for pony town
                                                    
                                                    Welcome my peasants...
-                                                Your local Boosfer lover/p,
+                                                  Your local Boosfer fan,
                                                         ꒦︶Milk!꒷꒦
-                                Pansexual - Fictosexual - Hypersexual - ED - angeldust fictkin
+                            Pansexual - Fictosexual - Hypersexual - ED - Dissociative Amnesia
                                                 
 . ⛔ DNI LIST . Basic DNI criteria - Nazis - Stormik/j - Weirdos - People who constantly beg for attention - Freaky ponies - homos - boundary breakers - racists - ableist
 
